@@ -6,6 +6,6 @@
 - mestre kode på en tilfredsstillende måte
 - imponere Lasse
 
-## ![](https://www.google.no/search?q=lasse+gullv%C3%A5g+s%C3%A6tre&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjEq4S35q7VAhWLa5oKHeYMC7AQ_AUICigB&biw=1440&bih=753#imgrc=kvUN1y9b22BqGM:)
+## ![](https://secure.meetupstatic.com/photos/member/4/f/5/9/highres_249920313.jpeg)
 
 ## *Jeg synes det er spennende å arbeide i GitHub. Kanskje dette blir Osloskolens nye plattform?*
